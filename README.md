@@ -1,0 +1,2 @@
+# Baqqz_panell
+BAQQZ PANEL WHATSAPP HOSTING
